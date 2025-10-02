@@ -1,0 +1,1 @@
+# Aholining-sogliqni-saqlash-korsatkichlari
